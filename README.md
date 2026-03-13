@@ -1,4 +1,4 @@
-![below](https://komarev.com/ghpvc/?username=qwettyche&color=yellowturquoise)
+![below](https://komarev.com/ghpvc/?username=qwettyche&color=yellow)
 ![gif](https://media1.tenor.com/m/eXryLVmqBZAAAAAd/sparkle-veritas-ratio.gif)
 <p align="center">
 just call me nei 
