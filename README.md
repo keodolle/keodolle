@@ -1,7 +1,9 @@
 ![below](https://komarev.com/ghpvc/?username=qwettyche&label=below&color=yellow) 
-![gif](https://media1.tenor.com/m/eXryLVmqBZAAAAAd/sparkle-veritas-ratio.gif)
+![gif](
+https://i.pinimg.com/736x/bf/28/e5/bf28e523934259f41289f1ef37f9a395.jpg)
+제 홈 파일 파일을 읽어주셔서 감사합니다.
 <p align="center">
-𝕵𝖚𝖘𝖙 𝖈𝖆𝖑𝖑 𝖒𝖊 𝖓𝖊𝖎 
+nei or ivrae
 </p> <p align="center">
 (s)he and 19yo
 </p> 
