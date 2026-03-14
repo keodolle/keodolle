@@ -5,6 +5,8 @@
 </p> <p align="center">
 (s)he and 19yo
 </p> 
-If there's any problem with me, please contact me privately for a quick and direct resolution.
-
+ᯓ If there's any problem with me, please contact me privately for a quick and direct resolution.
+</p> <p align="center">
+  Don't insult me when we don't know each other, or even when we do, you still deliberately do it. 
+</p>
 ![gif](https://media1.tenor.com/m/b-trKvSAvLEAAAAd/aventurine-playing-with-gold-honkai-starrail-animation.gif) 
