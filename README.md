@@ -19,7 +19,7 @@ nei or ivrae ᶻ 𝗓 𐰁 .ᐟ
 </p> </p> <p align="center">
 ᯓ i will joke around and talk more w the people i'm closest to, cuz i feel comfortable w them. 
 
-  ᯓ if u have any problems, plz contact me directly for a quick resolution. 
+  ᯓ if u have any problems, plz contact me directly for a quick resolution,thanks.
 </p>
 
 ![gif](https://i.pinimg.com/736x/f5/4e/a1/f54ea1b2ed1979145e94bb8e6a96f81d.jpg) 
