@@ -22,7 +22,7 @@
 <p align="center">
   <img src="https://visitor-badge.laobi.icu/badge?page_id=keodolle.keodolle&left_color=lightgrey&right_color=lightblue&left_text=%E2%AA%A9.%20.%E2%AA%A8"/>
 </p> <p align="center">
-  <img src="https://i.pinimg.com/736x/50/c0/88/50c088f5ac32cc10c4c928dff2917451.jpg" width="500"/>
+  <img src="https://i.pinimg.com/736x/22/68/be/2268be5db286c2e9d0a3fc9bce20e458.jpg" width="500"/>
 </p>
 
 <p align="center">
