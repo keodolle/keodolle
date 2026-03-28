@@ -26,7 +26,7 @@
 </p>
 
 <p align="center">
-  <i>“Tell me what you want… I’d choose you every time.”</i>
+  <i>“돈, 멋, 명예 love and what?... Take what you want.”</i>
 </p>
 
 <p align="center">
