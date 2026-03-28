@@ -2,11 +2,9 @@
 
 <table>
   <tr>
-    <td>
   <td valign="middle">
   愛 : puppy <br>
   𐔌՞ ܸ.ˬ.ܸ՞𐦯
-</td>
     </td>
     <td align="right">
       <img src="https://github.com/keodolle/keodolle/raw/main/8c0932222347829b216bbed0a71f4801-removebg-preview.png" width="180"/>
