@@ -5,5 +5,5 @@
 <p align="center">
 <img src="https://visitor-badge.laobi.icu/badge?page_id=keodolle.keodolle&left_color=lightgrey&right_color=mossgreen&left_text=%E1%9B%9D.%20.%E1%9B%9D"/>
 </p> <p align="center">
-  <img src="https://i.pinimg.com/736x/20/58/8c/20588cf32dbe811ee70bea03d0e03089.jpg" width="500"/>
+  <img src="https://i.pinimg.com/originals/fe/ae/91/feae919fe0079ec0c84443e4639a2aa7.gif" width="500"/>
 </p>
