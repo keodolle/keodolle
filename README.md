@@ -1,5 +1,5 @@
 <p align="left">
-  <img src="https://img.shields.io/badge/✰-2740-ffb6c1?style=flat&labelColor=555555&color=ffb6c1"/>
+  <img src="https://img.shields.io/badge/✰-2740-ffb6c1?style=flat&labelColor=555555&color=ffb6c1&logoColor=white"/>
 </p>
 
 </p> <p align="center">
