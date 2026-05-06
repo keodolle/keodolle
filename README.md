@@ -1,6 +1,7 @@
 <p align="center">
-  <a href="https://menti0n.straw.page">#straw</a> |
-  <a href="https://brookeartzz.atabook.org/">#atab</a>
+  <a href="https://menti0n.straw.page">strawpage</a> 
+ 
+  <a href="https://brookeartzz.atabook.org/">atabook</a>
   
 <p align="left">
   <img src="https://visitor-badge.laobi.icu/badge?page_id=keodolle.keodolle&left_color=white&right_color=ffb6c1&left_text=%E1%9B%9D.%20.%E1%9B%9D"/>
