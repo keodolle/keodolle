@@ -4,7 +4,7 @@
 <a href="https://www.facebook.com/yanghuangg/">facebook</a>
 </p>
 
-![img](https://i.postimg.cc/Pf8qdVkf/Khong-Co-Tieu-De751-20260511101507.png)
+![img](https://i.postimg.cc/3xLhX2HL/Khong-Co-Tieu-De751-20260511101734.png)
 
 <p align="left">
   <img src="https://visitor-badge.laobi.icu/badge?page_id=keodolle.keodolle&left_color=white&right_color=ffb6c1&left_text=%E1%9B%9D.%20.%E1%9B%9D"/>
