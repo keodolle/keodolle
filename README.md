@@ -1,21 +1,11 @@
-<p align="left">
-  <img src="https://visitor-badge.laobi.icu/badge?page_id=keodolle.keodolle&left_color=white&right_color=ffb6c1&left_text=%E1%9B%9D.%20.%E1%9B%9D"/>
-</p>
-
-</p> <p align="center">
-  <img src="https://i.pinimg.com/originals/0f/ca/0c/0fca0c5c79d71d39112b4936992a0676.gif" width="500"/>
-</p>
-<p align="center">
-   <img src="https://readme-typing-svg.demolab.com?font=Arial&size=24&pause=500&color=FFFFFF&center=true&vCenter=true&width=600&lines=%EC%A0%80+%EB%A9%80%EB%A6%AC+%EB%84%A4%EA%B0%80+%EB%B3%B4%EC%97%AC,+%EB%82%B4+%EB%A7%98%EC%9D%80+%EB%B9%84%EC%83%81%EC%82%AC%ED%83%9C"/> 
-</p>
-
-![img](https://i.postimg.cc/fTQMC6mx/Khong-Co-Tieu-De723-20260506102532.png)
-
 <p align="center">
 <a href="https://wonhette.straw.page">strawpage</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 <a href="https://brookeartzz.atabook.org/">atabook</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 <a href="https://www.facebook.com/yanghuangg/">facebook</a>
 </p>
-<p align="center">
-  <img src="https://i.pinimg.com/originals/16/8a/bc/168abcdc633cff551c0d66da98a37a39.gif" width="200">
+
+![img](https://i.postimg.cc/Pf8qdVkf/Khong-Co-Tieu-De751-20260511101507.png)
+
+<p align="left">
+  <img src="https://visitor-badge.laobi.icu/badge?page_id=keodolle.keodolle&left_color=white&right_color=ffb6c1&left_text=%E1%9B%9D.%20.%E1%9B%9D"/>
 </p>
