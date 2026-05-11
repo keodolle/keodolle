@@ -7,5 +7,5 @@
 ![img](https://i.postimg.cc/3xLhX2HL/Khong-Co-Tieu-De751-20260511101734.png)
 
 <p align="left">
-  <img src="https://visitor-badge.laobi.icu/badge?page_id=keodolle.keodolle&left_color=white&right_color=ffb6c1&left_text=%E1%9B%9D.%20.%E1%9B%9D"/>
+  <img src="https://visitor-badge.laobi.icu/badge?page_id=keodolle.keodolle&left_color=wine&right_color=thistle&left_text=%E2%84%98&v=8"/>
 </p>
