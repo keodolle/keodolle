@@ -1,7 +1,7 @@
 <p align="center">
 <a href="https://wonhette.straw.page">strawpage</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 <a href="https://brookeartzz.atabook.org/">atabook</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
-<a href="https://www.facebook.com/yanghuangg/">facebook</a>
+<a href="https://guns.lol/neithera">guns</a>
 </p>
 
 ![img](https://i.postimg.cc/28DLMNLJ/Khong-Co-Tieu-De751-20260511103234.png)
