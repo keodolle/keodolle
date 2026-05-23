@@ -1,5 +1,5 @@
 <p align="center">
-<a href="https://wonhette.straw.page">strawpage</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+<a href="https://chewycookiee.straw.page">strawpage</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 <a href="https://brookeartzz.atabook.org/">atabook</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 <a href="https://guns.lol/ahkono">guns</a>
 </p>
