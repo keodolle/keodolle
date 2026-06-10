@@ -1,7 +1,5 @@
 <p align="center">
-<a href="https://keontatoo.straw.page">strawpage</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 <a href="https://brookeartzz.atabook.org/">atabook</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
-<a href="https://guns.lol/ahkono">guns</a>
 </p>
 
 ![img](https://i.postimg.cc/FsSW-2bcP/Khong-Co-Tieu-De841-20260610172313.png)
